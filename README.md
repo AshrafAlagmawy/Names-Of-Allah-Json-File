@@ -11,7 +11,6 @@
 
 ## [أسماء الله الحسني](https://ashrafemad097.github.io/Names-of-Allah/)
 
-<br>
 
 ## تفاصيل ملف json 
 
