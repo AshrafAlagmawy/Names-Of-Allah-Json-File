@@ -9,6 +9,8 @@
 
 <br>
 
+[أسماء الله الحسني](https://ashrafemad097.github.io/Names-of-Allah/)
+
 <br><br>
 
 ## تفاصيل ملف json 
