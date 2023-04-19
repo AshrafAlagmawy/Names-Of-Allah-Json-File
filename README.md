@@ -9,7 +9,7 @@
 
 <br>
 
-## [أسماء الله الحسني](https://ashrafemad097.github.io/Names-of-Allah/)
+## [أسماء الله الحسنى](https://ashrafemad097.github.io/Names-of-Allah/)
 
 
 ## تفاصيل ملف json 
